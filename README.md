@@ -2,4 +2,4 @@
 Initiation protocol 
 
 InfoBot here. I like R.
-I've had some good meat. 
+I had some bad steak today. 
